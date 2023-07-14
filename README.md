@@ -25,7 +25,7 @@ I look forward to connecting with like-minded individuals and organizations that
 ### Contact Me 🤝
 If you would like to get in touch, collaborate on a project, or have any questions, feel free to reach out to me through the following channels:
 
-GitHub: @Tesse0ract /br
+GitHub: @Tesse0ract 
 Email: betenoire141@gmail.com
 
 
